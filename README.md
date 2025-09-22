@@ -1,4 +1,4 @@
-Grand Rp manager discrod bot 
+Grand Rp manager discrod bot insta iiAymen_dz discord xoaymen
 the bot have roster for every event 
 remind for events 
 strike system 
